@@ -1,5 +1,5 @@
 #**Manoel Pedroza**
 
-__ Sou alvirrubro !!! __
+Sou alvirrubro !!!
 
-:=D
+
