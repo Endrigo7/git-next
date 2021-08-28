@@ -1,0 +1,1 @@
+Moro em Recife e quero trabalhar na área de tecnologia.
